@@ -1,0 +1,291 @@
+### Death Breath 
+
+I’ve been wondering
+Lately
+If more people die
+On the in-breath
+Or on the out
+
+Or perhaps in the narrow pause
+In between?
+They say that the heart slows
+On the exhale
+And then picks up again
+With the inhale
+
+I’d like to think people
+Pass
+Relaxed
+At the end of their last expression of air
+Heart soft
+Content
+A job well done
+
+----
+
+### Ketamine
+
+Heart surging 
+A meteor of pure kinetic power
+Gracing my consciousness
+Sucked down an hours worth
+Of a ketamine lollipop
+On Viva’s couch 
+
+Laying still
+Eyes masked
+Feeling the rise and fall of so much love
+The energy behind all the thoughts
+Pressing me home 
+
+Seeing the quick escapes
+Of those feral, alert parts
+Grabbing them by their necks or tails
+Only to have them disappear from my grasp
+
+Finding Him
+Again
+Playing with his toys
+Waiting patiently for Her 
+Holding up his toys 
+To her gauzy form
+Her smiling, looking on
+Tall and thin and comforting
+
+Trying, vainly
+To turn him around to see
+Me
+Not a woman
+But a love on offer
+
+At some point
+A kind of meeting
+A half-in hand-holding
+An agreement to move together
+Ties of a bridge
+That we might walk over 
+
+Guessing
+Perhaps correctly
+What he wants and how he got there
+Understanding, hopefully,
+What is good and what to offer
+And maybe, to make my life
+Easier
+Less bothered 
+
+
+---
+
+### Just Friends
+
+Today is raining
+I am wet
+I told a girl
+How things have changed since we met 
+
+And she told me
+Just like Elyse May did back then
+“No, josh malina, 
+I will not be your girlfriend”
+
+Sad stuff
+That’s for sure
+But I already
+Knew the score
+
+Or part of me did
+But one held out
+The one loves love 
+The one who shouts 
+
+“Hey hey
+Find someone to love!
+We like this one
+Go get her bruv!”
+
+Well I tried
+I meekly mentioned my feelings
+And she easily replied
+That’s not what, with you, I am seeking
+
+It’s tempting to make
+Much of this loss
+But as the Chinese farmer says
+We don’t know how things turn out, hoss
+
+So feel you feelings
+And offer what’s needed within
+Your love is everlasting
+No need to take this on the chin
+
+I guess the part
+That still feels squirrelly
+Is the one who worries
+Did I ruin a friendship, prematurely?
+
+Well it was risk
+And it may bear out
+A severance, a void
+Something I’d be sad about  
+
+Because in my natural
+Human state
+I find loss difficult 
+To navigate 
+
+That’s what needs 
+My love the most
+My inward gaze
+A hug, a toast?
+
+Hey little guy
+I know you’re scared
+You worry about being alone
+That is fair 
+
+Look at me
+See into my eyes
+There’s someone who cares
+Who would rather die
+Then have you feel lonely
+Cold and scared
+I’m here for you
+I’m here to care
+
+That little bit
+Gets him curious
+He wonders if 
+My claims aren’t spurious
+
+Oh little boy
+Don’t you know
+You’re the one 
+I want to show
+
+How life can be
+When you trust
+That you’re not alone
+That I am here 
+I see you there
+I love you my dear
+
+
+---
+
+### Twice
+
+Twice now
+I’ve lay under some lovely girl
+Bouncing,  hair flung back
+Captured fully in the moment
+
+Except for one thought:
+“I will marry this girl”
+
+Twice now
+I’ve been dismissed
+A similar moment never arising
+For them
+
+Here again
+I find myself totally captured
+Infatuated 
+Fully unrequited
+
+As if it weren’t already
+Obviously true
+That I’m staring up
+At the wrong tree
+
+--
+
+### Rocks
+
+What good is a poem
+When you want bash
+Your head
+Against the rocks 
+
+
+---
+
+### Extrovert
+
+Hershey snores
+And I feel bored
+Reading today
+But I yearn for more
+
+Hiked sugarloaf yesterday
+And rode to b’more the day before
+Outdoor play is great
+It’s the contrast I deplore
+
+Four walls
+Itchy skin
+Loneliness and congestion
+The critic ways in
+
+“Stuck again,
+Ruminating?
+Put on your pants
+The world is waiting”
+
+A coffee shop
+Offers some respite
+A short conversation
+That feels right
+
+So simple
+Learnt time and again
+People are medicine
+You’re social, man
+
+Confessions of 
+A forgetful extrovert
+Happiness, oh happiness
+He flails and flirts
+
+---
+
+### Wake Up
+
+Today, now
+The sun is bright
+All who sleep
+Must now alight 
+
+“Come down 
+From your bunks!”
+the day demands,
+“Bring paper and pencil.
+I have a plan”
+
+So we descend
+Down elevators and stairs
+Through hallways,
+Under thresholds
+Any preposition is fair 
+
+To see and hear
+What’s in store
+A feeling
+A thought
+A conversation for sure 
+
+Oh dear
+I hope
+That there are many
+I like to talk
+Friends -- I’ll take plenty 
+
+For I am sensitive 
+to the monotony
+The routine, it feels,
+Often quite unsatisfying
+
+But sometimes it surprises 
+Sometimes it’s good
+Sometimes I get to trade my frown
+To be an amiable dude 
